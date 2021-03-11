@@ -1,0 +1,1 @@
+# 2ality-blog-translation
